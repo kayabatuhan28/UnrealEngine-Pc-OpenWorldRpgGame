@@ -8,6 +8,6 @@ https://drive.google.com/file/d/16a_v06q1IvvO0M4x7g8pfqEWBbHtoKk6/view?usp=shari
 
 
 Bireysel Platform Oyunu Çalışmam ;  
-https://drive.google.com/file/d/1nS8mAosjsujE_bK8WCP8bSN4eNZDgm8h/view?usp=sharing
+https://drive.google.com/drive/folders/1ck1fWeHD5uid9u5tzgCc0tSO7nD4hqqL?usp=sharing
 
 
